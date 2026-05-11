@@ -33,7 +33,8 @@
 ---
 
 ### 🤝 Let’s Connect
-- 💼 LinkedIn: www.linkedin.com/in/surajombase89  
+- 💼 LinkedIn: www.linkedin.com/in/surajombase89
+
 - 📧 Email: surajombase89@gmail.com  
 
 ---
